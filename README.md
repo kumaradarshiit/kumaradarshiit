@@ -2,7 +2,7 @@
 - 👀 I’m interested in Internships , Hackathon 
 - 🌱 I’m currently learning:Machhine Learning and Artifical Intelligence
 - 💞️ I’m looking to collaborate on: hackathon /Startup
-- 📫 How to reach me :connect me on linkidin/kumar8051799@gmail.com
+- 📫 How to reach me :connect me on linkidin / kumar8051799@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: there are more ants than humans
 
